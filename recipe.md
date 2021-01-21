@@ -1,0 +1,1 @@
+Use a whisk attachment for mixing. Mix the cake mix and water on a slow speed for 1 min. Scrape the batter and again mix at medium speed for 2 min. Add oil while mixing at slow speed for 1 min. Again mix at medium speed for 2 mins. Pour the batter into the baking tin. Bake at 180°C - 200°C  for  approx 25 mins to 30 mins.
